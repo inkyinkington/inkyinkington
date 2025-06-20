@@ -1,7 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=inkyinkington&color=49a315&label=^0^"> </p>
 <p align="center"> ____________________________________________________________ </p>
 <p align="center">
-<img src="https://files.catbox.moe/e8pp51.gif">
+<img src="[https://files.catbox.moe/e8pp51.gif](https://files.catbox.moe/e8pp51.gif)">
 </p> 
 <p align="center"> 𐄈　inky 　﹒　ink　﹒ character in cos.  ⸝⸝   𝄢　𐑞</p>
 <p align="center"> 𐄈　 ╰      ✙𓈒 ⠀⇵  ⠀  any  ⠀⸝⠀ she / they pref　　𐂯</p>
