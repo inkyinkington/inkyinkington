@@ -1,8 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=inkyinkington&color=49a315&label=^0^"> </p>
 <p align="center"> ____________________________________________________________ </p>
 <p align="center">
-<img src="[https://files.catbox.moe/e8pp51.gif](https://files.catbox.moe/e8pp51.gif)">
-</p> 
+<img src="https://files.catbox.moe/mo3os1.png"
 <p align="center"> 𐄈　inky 　﹒　ink　﹒ character in cos.  ⸝⸝   𝄢　𐑞</p>
 <p align="center"> 𐄈　 ╰      ✙𓈒 ⠀⇵  ⠀  any  ⠀⸝⠀ she / they pref　　𐂯</p>
 <p align="center"> 𐄈　⠀⠀ ⠀ ⠀(⇀‸↼‶) 　cuddle + cover + touch comf , dnc light inspo is fine with permisson !　      ! ?</p>
